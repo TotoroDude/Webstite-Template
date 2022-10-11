@@ -1,43 +1,41 @@
-*   Mental Health 04-19-22
+# Mental Health 04-19-22
 If I gave you a bullet I want you to take the shot... Please it hurts to much to keep existing because Im so selfish that I get to hurt in the process when im being selfless and it hurts so so bad... I feel like I get attacked all the time when I feel this way and I dont like it anymore... It hurts I cry and weep... God I try my best I really do I do fall so hard sometimes I dont want to get back up... I try to make the space but its hard and I dont want to be fake to you and as a christian... Why must this numb feeling keep coming back... It kills me... Oh please my God my God help me... Im not asking for the easy road but sometimes I would like a hand because it really does get lonely alot... I have seen you do crazy things to people around me and I thank you for showing me that... But why must I be going through my season alone... I ask for comfort from others but everyone must be in there own seasons of pain or trials... But Im not going to ask people to stick around me... I want people who are true to themselves like you taught me... To never lie and to never stop loving even if they hurt you or walked away... I dont know how you do it but God I envy that unconditional love you give me and try to show it to others without trying to feel like im hurting them as well... God help oh Mighty God my Savior... Im done I want to come home Im lost and scared and lonely... But I thank you but I dont know if I steered off myself or you placed me here but Satan feels like hes stalking and winning over me telling me Im not worth it anymore... I need your love and warmth again... Its to cold my mind is so harsh on itself again... Why do I do this to myself I dont mean to give myself validation of what I do is right im just curious the way you made me and its so hard for it not to kill me... Why did you design me to be the way I am... What is my purpose to tell others when all they will do it use it against me...
 
-
-*   Freaking out 05-03-22
+# Freaking out 05-03-22
 Welp Im screwed messed up going super fast because I thought maybe someone would hit me or crash into me so I can forget about the voices in my head telling me Im not good enough... Like why did I have to be the one hurt I didnt want too... I wanted the best and even if I was not the one I rather have been told way earlier than later like I was... I had a gut filling about something was up about it but it just killed me and my mind raced and I blocked out which was my fault... I hope this can be fixed one day... I hope these voices in my head stop degrading me... I have been reading and journaling but its really hard... I hope one day it ends... I hope....
 
 
-*   Im Out 05-13-22
+# Im Out 05-13-22
 Well I left just to get away from everyone asking or just giving me weird vibes... I hope me and jacob will enjoy this trip I have always wanted to see california and to see a favorite band of mine... I dont get it why I had to leave to make me calm but I hope everything is alright... Im still mental not okay to a point but ill hold it for the people around me... I cant hold it as much but hopefully getting out gets those voices and peoples eyes off me with my mental health...
 
-
-*   Stressed 06-15-22
+# Stressed 06-15-22
 Why do I still talk to you even though you stabbed me from behind... It hurt so bad when we talk I dont know if I want to continue.... I still care for you and I hope you still dont think I dont love you... But it hurts because all my mind is thinking is that I cant trust anything because I was betrayed.... I hope maybe ammends can be made but I still dont know Ill still watch over and protect from afar but I dont know how much of that I can do without you getting pissed at me or just pushing me... Even if you dont want it Im still watching... I pinky promised I wouldnt stop loving you I still hold to that...
 
 
-*   Jacob 06-21-22
+# Jacob 06-21-22
 Im glad that im okay with a best friend leaving me? I dont know if I like that being friends for almost most of my life... I think he will be soon dipping on me and then what do I have... I dont even have my sanity... Its like im spinning around and around and around and around... I want it to stop but ill enjoy what I have with my friend... I survived this long... 
 
 
 
-*   Punk 07-01-22
+# Punk 07-01-22
 I think Im hitting my emo faze... I think ashlynn is still not learning I feel as if shes still chasing for guys and she needs to stop only to fix herself... Im not saying shes made progress but its not alot... I hope she learns that playing with guys feelings or just feelings in general is going to hurt alot of people around her... I still hope the best for her and still love her but not like I use to just love her because I want her to be her without harming people or peoples feelings... I hope this emo faze also is forever because I kinda like it... Even though I wear mostly bland colors anywho....
 
 
-*   Haircut 07-04-22
+# Haircut 07-04-22
 Thank you for the haircut... You really helped... Even talking that day I felt like I was talking to the real Ashlynn... I get it my heart wants to take you back but I still have a feeling you want someone else and not me... I feel like I wont be the perfect person like Aaron or who else you find at Camps... I wont Im probably the worse of them all Im probably going to be the last pick... I get it... Dont pity me... I understand why... Im not the one in your eyes... I hope maybe I could have been in some other reality but this one I guess not... Ill still think about you and I hope you still dont forget me too... I do miss your company and laughter... I miss those good old days... But I think about this more on if I want to still pursue...
 
 
-*   About Her Only 07-06-22
+# About Her Only 07-06-22
 Why is it when I invite you... Its like everything is about you or you hate something about me that day... I dont want this type of vibe around "my people", "my friend group", "my ride or dies".... I want you to be apart of this but maybe its not meant to be yet.... I hope you understand that im not harsh on you because I want to see you perish or I dont want you part of my world... Its because I do want you still apart of it... Even if Im okay or happy that your not or do want too... I still do care for your opinions and your look on things... I hope this bridge can be fixed.... I burnt it so bad and degraded when I was hurt which is so wrong of me but I hope forgive and I hope that one day we can move on from the worse of me.... I hope one day you understand why I only saw blood... I do hope you see through my eyes... I hope....
 
 
-*   The Worse Birthday 08-06-22
+# The Worse Birthday 08-06-22
 This birthday sucked.... Why because people left me and also people couldnt help me... I went to the concert and you texted me and tried to call I wanted to answer but I felt as if I was going to get hurt... Im sorry I thought about this I would tollaly dropped everything for you but I learned that day I need to not chase you... I thought about that day waiting in line... Do I want to go back to her when I cant still trust her? Do I want to have a future with her and then my childern ask me why I might not trust mom? Do I want to ruin a good person just for my own selfish needs? Do I really want her for comfort and future or just because im alone and scared? I hope one day you get why I wont choose you... Not because your bad or you have issues we all do even me... But I choose this because I want to have a good relationship that can last even if its not now... I want to be okay... I dont want to have a future where I cant trust my wife or future... Because I have seen what no trust can do in relationships... I went trhought it twice and it was dark... But also I know its a foundation for alot of things even God... I hope God can tell me why this valley has been so crazy...
 
 
-*   The Change 08-12-22
+# The Change 08-12-22
 I think I have moved on... Im sorry to let go in that meaning... I still will comfort if needed but I dont think you want that... Im just reading you... I see you like your crazy change haha... Im glad I think its kinda like you but not fully you... I think this punk/emo look is cool but not You... I think your style has always been that grandma look and I always enjoyed that... And you doing your crazy crafts hehe... I was thinking about when I left and I bet people thought it was weird when I did who knows... I left because I always feel unwelcomed when im around you so I leave... But this might be the last thing I say but I still love you and hope the best for you and if you need me keep a distance a bit because even hugs from you hurt me... They make me feel unwelcomed as well... I never stoped loving you I promised that and I do really really hope the best for you...
 
 
-*   The Ending
+# The Ending
 I love you still but not like you want it to be... I hope this message still points out to you... Even if I dont want hugs or look your way alot... You still are a "Princess" in my book and im a "Peasant Boy"... I will always get out of your way and only enter your domain if you verbal tell me soo... I will always avert away from you... I dont like it but its just how its going to be for now... I love you and farewell my once lover... I hope one day this mess can be mended or replanted...
