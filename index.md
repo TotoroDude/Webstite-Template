@@ -16,9 +16,8 @@ Why do I still talk to you even though you stabbed me from behind... It hurt so 
 Im glad that im okay with a best friend leaving me? I dont know if I like that being friends for almost most of my life... I think he will be soon dipping on me and then what do I have... I dont even have my sanity... Its like im spinning around and around and around and around... I want it to stop but ill enjoy what I have with my friend... I survived this long... 
 
 
-
 # Punk 07-01-22
-I think Im hitting my emo faze... I think ashlynn is still not learning I feel as if shes still chasing for guys and she needs to stop only to fix herself... Im not saying shes made progress but its not alot... I hope she learns that playing with guys feelings or just feelings in general is going to hurt alot of people around her... I still hope the best for her and still love her but not like I use to just love her because I want her to be her without harming people or peoples feelings... I hope this emo faze also is forever because I kinda like it... Even though I wear mostly bland colors anywho....
+I think Im hitting my emo faze... I think ashlynn is still not learning I feel as if shes still chasing for guys and she needs to stop only to fix herself... Im not saying she didnt made progress but its not alot... I hope she learns that playing with guys feelings or just feelings in general is going to hurt alot of people around her... I still hope the best for her and still love her but not like I use to just love her because I want her to be her without harming people or peoples feelings... I hope this emo faze also is forever because I kinda like it... Even though I wear mostly bland colors anywho....
 
 
 # Haircut 07-04-22
