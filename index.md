@@ -38,3 +38,6 @@ I think I have moved on... Im sorry to let go in that meaning... I still will co
 
 # The Ending
 I love you still but not like you want it to be... I hope this message still points out to you... Even if I dont want hugs or look your way alot... You still are a "Princess" in my book and im a "Peasant Boy"... I will always get out of your way and only enter your domain if you verbal tell me soo... I will always avert away from you... I dont like it but its just how its going to be for now... I love you and farewell my once lover... I hope one day this mess can be mended or replanted... I hope we find that chair again someday...
+
+# The Last Hurt
+Its crazy time passes and certain things stilk tick the issues... But I think im okay with that I just dont like seeing people actually struggle in every sense of a relationship wise and its just sad... I never like someone to be like that because I think everyone has someone but you have to mold it and work though it... But I think I am finally at peace its been awhile maybe months from today but I think seeing you cause pain in the sense that the bridge is fully broken and I dont think its healthy to fix it because I dont want anger to be the cause of it and unresolved is probably the best and just let it natually go back but if it doesnt as well good luck chief I wish the best luck...
